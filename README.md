@@ -1,1 +1,2 @@
 Matthew Norman
+normmatt@oregonstate.edu
